@@ -5,3 +5,5 @@ Tamura dayo
 Tamura Takaharu Done.
 
 Tsukasa Misawa Done
+
+Wong Shun Man Betty Done.
