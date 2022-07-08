@@ -15,3 +15,5 @@ Mio Miyazaki Done
 Hiroshi Abe Done.
 
 Runa Aoyama Done.
+
+Kenichirou Yasuda Done.
